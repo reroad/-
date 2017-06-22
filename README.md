@@ -1,8 +1,8 @@
 # -
 죽기전에 가볼만한 나라
 
-1번:호주![시드니 하버 브리지, https://www.youtube.com/watch?v=TyJ9W0aixws&list=PL_JOHb8anjbW2_Wf486DiGVg-OI2iFJc4](http://p1.pichost.me/i/53/1768532.jpg)  
-![장 마리 티바우 문화센터 ,https://www.youtube.com/watch?v=TyJ9W0aixws&list=PL_JOHb8anjbW2_Wf486DiGVg-OI2iFJc4](https://i.ytimg.com/vi/fCyIbQ5hw9Q/maxresdefault.jpg)
+1번:호주![https://www.youtube.com/watch?v=TyJ9W0aixws&list=PL_JOHb8anjbW2_Wf486DiGVg-OI2iFJc4](http://p1.pichost.me/i/53/1768532.jpg)  
+![https://www.youtube.com/watch?v=TyJ9W0aixws&list=PL_JOHb8anjbW2_Wf486DiGVg-OI2iFJc4](https://i.ytimg.com/vi/fCyIbQ5hw9Q/maxresdefault.jpg)
 2번:카자흐스탄![카자흐스탄](http://fb77072r.bget.ru/img/7.jpg)  
 ![카자흐스탄 스키장](https://i.ytimg.com/vi/1_w_wc-4lWI/maxresdefault.jpg)  
 ![카자흐스탄 도심지 풍경](https://kr.best-wallpaper.net/wallpaper/1920x1080/1310/Astana-Kazakhstan-city-landscape-dusk-lights-buildings-clouds_1920x1080.jpg)
